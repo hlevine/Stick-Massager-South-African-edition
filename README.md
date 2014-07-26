@@ -15,3 +15,6 @@ I cut my 20mm PVC pipe into an intial 450 mm length.  Once I Had fitted the conn
 
 
 I have posted a youtube video.
+
+Special thanks go to dixieoutlaw4x4 for his youtube instructions.    His tutorial was easy to understand. Thank you.
+https://www.youtube.com/watch?v=H7YM2BHfIII
